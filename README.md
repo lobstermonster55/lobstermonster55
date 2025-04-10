@@ -6,7 +6,7 @@
 <br> ![image](https://github.com/user-attachments/assets/5992c7d1-886d-4872-b5e4-7e585115c7a3)
 <br> ![image](https://github.com/user-attachments/assets/8dacf69b-3333-445a-ba15-7f799aa2617d)
 <br> ![image](https://github.com/user-attachments/assets/5992c7d1-886d-4872-b5e4-7e585115c7a3)
-<br> **LINK!!!! LINK TO MY [STRAWPAGE][url](https://rhymefield.straw.page/)!!** Click it. [Click it neow]([url](https://rhymefield.straw.page/). i put a lot of effort into it i thijnk (this is my third strawpage shhhh) and it has a lot of information regarding me if your into that i guess
+<br> **LINK!!!! LINK TO MY [STRAWPAGE](strawpage!!)!!** Click it. [Click it neow]([strawpage](https://rhymefield.straw.page/)) . i put a lot of effort into it i thijnk (this is my third strawpage shhhh) and it has a lot of information regarding me if your into that i guess
 
 <br> pretty pls.. sned me **_ART!! OR QUESTIONS!! OR MUSIC!! OR HUMBLE DELIGHTS!!!_**
 # ![image](https://github.com/user-attachments/assets/3a3b14dd-5bf4-43c6-a407-c71922eb1af2)
