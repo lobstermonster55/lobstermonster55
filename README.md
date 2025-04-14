@@ -9,6 +9,7 @@
 <br> **LINK!!!! LINK TO MY [STRAWPAGE](https://rhymefield.straw.page/)!!** Click it. [Click it neow](https://rhymefield.straw.page/). i put a lot of effort into it i thijnk (this is my third strawpage shhhh) and it has a lot of information regarding me if your into that i guess
 
 <br> pretty pls.. sned me **_ART!! OR QUESTIONS!! OR MUSIC!! OR HUMBLE DELIGHTS!!!_**
+<br> also.... *coughhs* checkout my [ata page](https://lobstermonster55.atabook.org/) as well ig.. not like you *haaaavvve* to or anything.. 
 # ![image](https://github.com/user-attachments/assets/3a3b14dd-5bf4-43c6-a407-c71922eb1af2)
 
 
