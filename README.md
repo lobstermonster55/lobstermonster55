@@ -1,6 +1,6 @@
 ## <br> whaddup 
 <br> i go by **lobstermonster** or **hunter**, or *whateva-word-mashed-nicknamed-amalgamation* you deem fit for me!!
-<br> when it comes to pronouns filp a coin or a nickle... a dime.. a few quarters.. or whatever you think i am i dont give a gaf (￣﹃￣)
+<br> im a guy (he/him why so queerious) (￣﹃￣)
 <br> *dooooo nooott interact* people under 13, critters labelled as proship/darkship
 <br> no i'm not an anti and i'm not gonna willing go out of my way to harass you if your a proshipper, live alugh love and be on ur way holmes 🙏
 > *♪ Shut up and sleep with me Come on, why don't you sleep with me? Shut up and sleep with me Come on, aha and sleep with me ♪*
