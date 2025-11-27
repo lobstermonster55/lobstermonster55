@@ -2,7 +2,7 @@
 <br> i go by **lobstermonster** or **hunter**, or *whateva-word-mashed-nicknamed-amalgamation* you deem fit for me!!
 <br> any pronouns (￣﹃￣)
 <br> *dooooo nooott interact* under 13, critters labelled as proship/darkship
-<br> no i'm not an anti and i'm not gonna willingly go out of my way to harass you if your a proshipper, live alugh love and be on ur way holmes 🙏
+<br> big chance im off tab... please whisper me if you wanna talk!! i check periodically (^ڡ^)
 > *♪ Shut up and sleep with me Come on, why don't you sleep with me? Shut up and sleep with me Come on, aha and sleep with me ♪*
 
 <br> ![crossing-legs-house-md](https://github.com/user-attachments/assets/0aef05d4-edc9-4867-8733-37b91ed484f4)
