@@ -1,11 +1,11 @@
 ## <br> whaddup 
 <br> i go by **lobstermonster** or **hunter**, or *whateva-word-mashed-nicknamed-amalgamation* you deem fit for me!!
 <br> any pronouns (￣﹃￣)
-<br> *dooooo nooott interact* people under 13, critters labelled as proship/darkship
+<br> *dooooo nooott interact* under 13, critters labelled as proship/darkship
 <br> no i'm not an anti and i'm not gonna willingly go out of my way to harass you if your a proshipper, live alugh love and be on ur way holmes 🙏
 > *♪ Shut up and sleep with me Come on, why don't you sleep with me? Shut up and sleep with me Come on, aha and sleep with me ♪*
 
-<br> https://tenor.com/view/crossing-legs-house-md-hugh-laurie-gregory-house-james-wilson-gif-13407047991615401184
+<br> ![hippo](https://tenor.com/view/crossing-legs-house-md-hugh-laurie-gregory-house-james-wilson-gif-13407047991615401184)
 
 
 
